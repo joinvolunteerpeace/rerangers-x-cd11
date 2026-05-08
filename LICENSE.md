@@ -1,4 +1,4 @@
-
+Experience re:rangers x like never before with hidden re:rangers x Script, the #1 Script. Includes auto-collect and fly for unbeatable performance.
 
 
 
